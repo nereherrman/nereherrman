@@ -1,6 +1,5 @@
 <p align="center">
- <img width="268" height="213" alt="you stupid fuck-AAH1" src="https://github.com/user-attachments/assets/decb89b9-f32c-4f58-9421-4507f1185e7a" />
-
+<img width="268" height="213" alt="you stupid fuck-AAH1" src="https://github.com/user-attachments/assets/d38e8fd7-b435-4cfd-9314-54c9b6e0870a" />
   <p align="center">
     nere . he/him . aroace
 <p align="center">
