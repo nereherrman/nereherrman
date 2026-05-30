@@ -28,3 +28,6 @@
 my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), illumina ( phighting ),  arataki itto ( genshin impact ), baicang ( NTE ) and possibly more 
     <p align="center">
     </details>
+<details>
+ <summary>interest</summary>
+ i'm interest in many stuffs like gaming, drawing, cactuses! body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, roblox, minecraft, ponytown( of course), minesweeper, nonogram , NTE.. i'm genshin, limbus company, sky cotl, terraria veteran . i do not play those games or interested in it much anymore due to the burnt out.
