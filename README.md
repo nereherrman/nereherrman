@@ -5,6 +5,7 @@
 <p align="center">
   <a href="https://guns.lol/nere">guns.lol</a>
    <a href="https://nere.atabook.org/">atabook</a>
+  <a href="https://fluffle.cc/shiin">fluffle.cc</a>
 </p>
 <div align="center">
 <details>
