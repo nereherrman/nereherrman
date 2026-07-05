@@ -34,4 +34,4 @@ my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hun
     </details>
 <details>
  <summary>interest</summary>
- i'm interest in many stuffs like gaming, drawing, cactuses! bugs/insects and body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, roblox, minecraft, ponytown( of course), minesweeper, nonogram , NTE.. i'm genshin, limbus company, sky cotl, terraria veteran . i do not play those games or interested in it much anymore due to the burnt out.
+ i'm interest in many stuffs like gaming, drawing, cactuses! bugs/insects and body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, roblox, minecraft, ponytown( of course),lobotomy corp, minesweeper, nonogram , NTE.. i'm genshin, limbus company, sky cotl, terraria veteran . i do not play those games or interested in it much anymore due to the burnt out.
