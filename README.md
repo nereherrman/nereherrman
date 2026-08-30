@@ -1,5 +1,6 @@
+
 <p align="center">
-<img width="268" height="213" alt="you stupid fuck-AAH1" src="https://github.com/user-attachments/assets/d38e8fd7-b435-4cfd-9314-54c9b6e0870a" />
+<img width="300" height="200" alt="lee n yuyu" src="https://github.com/user-attachments/assets/1027c65f-fd5f-4725-b317-80a429f4791e" />
   <p align="center">
     nere . he/him . aroace
 <p align="center">
