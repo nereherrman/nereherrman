@@ -26,11 +26,11 @@
 <div align="center">
 <details>
  <summary>medias</summary>
- i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), ranfren/randal's friends, stardew valley, roblox medias, NTE ( neverness to everness ) etc
+ i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), ranfren/randal's friends, stardew valley, roblox medias, dekin no mogura etc
   
   <p align="center">
     
-my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), illumina ( phighting ),  arataki itto ( genshin impact ), baicang ( NTE ) and possibly more 
+my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), kuriaki maki ( dekin no mogura ),  arataki itto ( genshin impact ), baicang ( NTE ), yesod.. ( project-moon ) and possibly more 
     <p align="center">
     </details>
 <details>
