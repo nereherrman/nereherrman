@@ -1,7 +1,9 @@
 
 <p align="center">
-<img width="300" height="200" alt="lee n yuyu" src="https://github.com/user-attachments/assets/1027c65f-fd5f-4725-b317-80a429f4791e" />
+<img width="260" height="300" alt="9 anniversary" src="https://file.garden/aCFhn2mMqiDpAezl/Untitled1787_20261005101937.png" />
   <p align="center">
+<img width="400" height="50" alt="9 anniversary" src="https://file.garden/aCFhn2mMqiDpAezl/text.gif" />
+    <p align="center">
     nere . he/him . aroace
 <p align="center">
   <a href="https://guns.lol/nere">guns.lol</a>
@@ -13,7 +15,8 @@
  you probably either find me through my social medias or ponytown, welcome i guess
     <p align="center">
   i usually sits at docks or bakery with my friend it depends on my mood
-  i go off-tab most of the time, playing games, drawing or whatever. i'm easily to gave up on something and easily to hyperfixation on something for weeks before dropping the interest such as artworks, games, study or anything, i get bored easily except friendships though i do value it alot
+  i go off-tab most of the time, playing games, drawing or whatever. i'm easily to gave up on something and easily to hyperfixation on something for weeks before dropping the interest such as artworks, games, study or anything, i get bored easily except friendships though i do value it alot.
+      I rarely block someone and if I did that's mean you're a very horrible person.
         <p align="center">
           i'm not a really person who will socialise but you can come int when me, please if you really want to become a friend i'll just let you know that i rarely go interact with other friends beside my close one i do not have intend on ghosting people..and i also rarely accept friend requests sometimes i go non-verbal when how much tired am i
           <p align="center">
@@ -33,6 +36,7 @@
   <p align="center">
     
 my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), kuriaki maki ( dekin no mogura ),  arataki itto ( genshin impact ), baicang ( NTE ), yesod.. ( project-moon ) and possibly more 
+me having the fav character of that ""DOESN'T MEAN"" I'm ""IN"" the fandom of that, I just found them to be likeable or relating towards me.
     <p align="center">
     </details>
 <details>
