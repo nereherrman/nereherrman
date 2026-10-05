@@ -31,7 +31,7 @@
 <div align="center">
 <details>
  <summary>medias</summary>
- i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), ranfren/randal's friends, stardew valley, roblox medias, dekin no mogura etc
+ i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), stardew valley, roblox medias, dekin no mogura etc
   
   <p align="center">
     
