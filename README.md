@@ -29,17 +29,18 @@
 <div align="center">
 <details>
  <summary>medias</summary>
- i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), stardew valley, roblox medias, dekin no mogura etc
+ i'm interest in spirit hunter: death mark/ng, projectmoon medias (esp limbus company and lobcorp), stardew valley, roblox medias, dekin no mogura etc, my rentry interest is kind of outdatedd, will fix soon.
   
   <p align="center">
     
-my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), kuriaki maki ( dekin no mogura ),  arataki itto ( genshin impact ), baicang ( NTE ), yesod.. ( project-moon ) and possibly more 
+my fav characters are gregor ( lcb ), honglu ( lcb ), kazuo yashiki ( spirit hunter: dm ), astro ( dandysworld ),  1x1x1x1x ( roblox media ), nyen ( ranfren ), kuriaki maki ( dekin no mogura ),  arataki itto ( genshin impact ), baicang ( NTE ), yesod.. ( project-moon ). netzach ( project-mmon ) and possibly more 
 me having the fav character of that ""DOESN'T MEAN"" I'm ""IN"" the fandom of that, I just found them to be likeable or relating towards me.
     <p align="center">
     </details>
 <details>
  <summary>interest</summary>
- i'm interest in many stuffs like gaming, drawing, cactuses! bugs/insects and body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, roblox, minecraft, ponytown( of course),projectmoon games(offical one), minesweeper, nonogram, sinner maker.
+ i'm interest in many stuffs like gaming, drawing, cactuses! bugs/insects and body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, Sky:COTL, roblox ( nullscape ), minecraft, ponytown( of course),projectmoon games, minesweeper, nonogram, sinner maker.
+  I don't like when playing PvP game alone >-< .. ( 4v4, team, duo or overall ) it amkes me overwhelemed ^_^ " .
 </details>
   <p align="center">
  <img width="400" height="100" alt="library of ruina" src="https://file.garden/aCFhn2mMqiDpAezl/ezgif-79e5dd0c0f9e5d2e.gif" />
