@@ -1,9 +1,7 @@
 ^_^ Oct 5
 <p align="center">
-<img width="260" height="300" alt="9 anniversary" src="https://file.garden/aCFhn2mMqiDpAezl/Untitled1787_20261005101937.png" />
+<img width="260" height="300" alt="Nere Herrman(n)" src="https://file.garden/aCFhn2mMqiDpAezl/IMG_20261013_101128.png" />
   <p align="center">
-<img width="400" height="50" alt="9 anniversary" src="https://file.garden/aCFhn2mMqiDpAezl/text.gif" />
-    <p align="center">
     nere . he/him . aroace
 <p align="center">
   <a href="https://guns.lol/nere">guns.lol</a>
@@ -42,3 +40,8 @@ me having the fav character of that ""DOESN'T MEAN"" I'm ""IN"" the fandom of th
 <details>
  <summary>interest</summary>
  i'm interest in many stuffs like gaming, drawing, cactuses! bugs/insects and body hooror ( along with gore but.. not relly ) most of my ocs associates with body horror! so be cautious ^_^ .. i play stardew, roblox, minecraft, ponytown( of course),projectmoon games(offical one), minesweeper, nonogram, sinner maker.
+</details>
+  <p align="center">
+ <img width="400" height="100" alt="library of ruina" src="https://file.garden/aCFhn2mMqiDpAezl/ezgif-79e5dd0c0f9e5d2e.gif" />
+  
+  
