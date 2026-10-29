@@ -1,4 +1,4 @@
-june 10, 2024. 🪞💥/🔥💥
+june 10, 2024. 💥🪞/💥🔥
 <p align="center">
 <img width="260" height="300" alt="Nere Herrman(n)" src="https://file.garden/aCFhn2mMqiDpAezl/IMG_20261013_101128.png" />
   <p align="center">
